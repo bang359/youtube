@@ -1,1 +1,1 @@
-YouTube频道集合：bang359.github.io/youtube/  
+YouTube频道集合：https://bang359.github.io/youtube
